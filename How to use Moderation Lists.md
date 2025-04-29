@@ -1,6 +1,6 @@
 ## How to use Moderation Lists
 
-![](https://github.com/kimileta/darkalley/blob/main/mutemod.gif)
+<img src="https://github.com/kimileta/darkalley/blob/main/mutemod.gif" alt="Clicking subscribe and mute on a mod list" width="50%">
 
 1. Go to the mod list
 
@@ -12,9 +12,9 @@
 
 ## Mod Lists in Use by DAG Members
 
-[zionists and genocidal racists]([Bluesky](https://bsky.app/profile/quiet-rain.bsky.social/lists/3lftoicq7tc2c)) by @quiet-rain.bsky.social‬
+[zionists and genocidal racists](https://bsky.app/profile/quiet-rain.bsky.social/lists/3lftoicq7tc2c) by @quiet-rain.bsky.social‬
 
-[Followers of Jesse Singal]([Bluesky](https://bsky.app/profile/suboptimal.technology/lists/3ld4s7b56zh2u)) by @suboptimal.technology
+[Followers of Jesse Singal](https://bsky.app/profile/suboptimal.technology/lists/3ld4s7b56zh2u) by @suboptimal.technology
 
 > Updates automatically.
 
