@@ -8,6 +8,11 @@
 
 3. Choose whether you want to mute or block all accounts on the list
 
+4. Now you'll instantly know if you're about to see a post that'll deal you psychic damage!
+
+<img src="https://github.com/kimileta/darkalley/blob/main/mutedscreenshot.png" alt="Finessea Hudgens quote skeeting an account muted by the Dipshit Vegans mod list" width="70%">   
+
+
 ---
 
 ## Mod Lists in Use by DAG Members
