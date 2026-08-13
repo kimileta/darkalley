@@ -42,9 +42,22 @@
 
 [***(See also: Setting up Skywatch Blue)***](https://github.com/kimileta/darkalley/blob/main/Labelers.md#setting-up-skywatch-blue) 
 
+[Camp Liberals](https://bsky.app/profile/ladyaranea.bsky.social/lists/3lpcjboh3yh2a) by @ladyaranea.bsky.social
+
+> Liberals that show glee at the suffering marginalized folks are going through, or whose loyalty to their party is absolute regardless of actions.
+
+[scratch a liberal](https://bsky.app/profile/snuffbunny.northsky.social/lists/3llty6gxuau2g) by @snuffbunny.northsky.social
+
+> and a fascist bleeds. 
+> liberals who parrot fascist talking points
+
 [💖sacrifice yourself for gavin💖](https://cope.works/profile/ianthe.online/lists/3lwvfvco56l2p) by @ianthe.online
 
 > people who show up on anti-newsom posts to start fights and yell about how "people should be treated like human beings" is an outrageous "purity test"
+
+[Newsom Control](https://bsky.app/profile/ofvick.bsky.social/lists/3lwr6uxnbbm2p) by @ofvick.bsky.social
+
+> Friends don't let friends see astroturfing. This moderation list is for Newsom stans, especially those being transphobic or posting AI slop of him ‐ and nobody else.
 
 [i'm afraid mamdani lives under my bed :(](https://cope.works/profile/ianthe.online/lists/3msaunuofnf2x) by @ianthe.online
 
@@ -90,29 +103,11 @@
 
 > People who ‘vote scold’, unhelpfully alienate progressive voters, resist libs, and other blindly faithful big D Democrats
 
-[FAFO Enjoy the Camps Repliers](https://bsky.app/profile/jeffreysens.bsky.social/lists/3lfggi3jf3d2q) by ‪@jeffreysens.bsky.social‬
-
-> Says above to innocents, you get what you voted for, etc.--Any taking pleasure in the suffering of innocents.
 
 [Blue Anon](https://bsky.app/profile/skysentry.bsky.social/lists/3lblgs57oei26) by ‪@skysentry.bsky.social‬
 
 > Resistor grifters, conspiracy theorists and rank-and-file BlueAnon accounts (aka BlueMAGA)
 
-[Blue MAGA dipshits](https://bsky.app/profile/slendy5127.bsky.social/lists/3lfaytxy5ew2p) by ‪@slendy5127.bsky.social‬
-
-> Users that, much like how Trump Humpers behave in regards to Trump, simply cannot handle any statement critical of Dems in general and/or wish for misfortune/death on others based on their delusions around said others. Those on this list cannot engage with reality and should seek deprogramming
-
-[Terminal Libbrain Nazi Healthcare Advocates](https://bsky.app/profile/falanxzealot.bsky.social/lists/3k5d7dtpnfj2s) by ‪@falanxzealot.bsky.social‬
-
-> Close personal friends of Ernst Rohm
-
-[Shitlibs](https://bsky.app/profile/mangaturtle.bsky.social/lists/3lh6pcqcx2o2h) by ‪@mangaturtle.bsky.social‬
-
-> The brainwashed tools of controlled opposition. The ones who block progress with their complacency. The establishment drones who seek their own safety and comfort above all else. The common Blue Wave Lib.
-
-[Captain's Log (Evil Version)](https://bsky.app/profile/jeanlucbacardi.bsky.social/lists/3lhltukc7kr2h) by ‪@jeanlucbacardi.bsky.social‬
-
-> Blue MAGA/Blue Anon, genocide deniers, KHive, bigots, Resist drones, "enjoy the camps!" etc.
 
 [Annoying #Resist Libs](https://bsky.app/profile/birdwatching.dog/lists/3lczobt6bkm2q) by ‪@birdwatching.dog‬
 
@@ -128,16 +123,24 @@
 
 > Getting sick of democrats blaming anything but their shit policies and politics for their election loss? Block em all here!
 
-[Monumental Dipshits](https://bsky.app/profile/chillmun.bsky.social/lists/3k7ygly6vc32c) by ‪@chillmun.bsky.social‬
+[libs being led to the right](https://bsky.app/profile/fatseanlives.bsky.social/lists/3lc5szldv5u2d) by @fatseanlives.bsky.social
 
-> Pay-No-Mind List
-> I don’t give a shit what you have to say, I don’t like you and I actively oppose your beliefs and worldview. List mostly consists of conservatives and centrists. Straight up bigots don’t even get a list, though, they just go straight to block - no explanation.
+> people throwing the next election: vibecession, nazi tattoos OK,horseshoe theory, russia everything, dems didnt support genocide, blame voters not party,purity tests for me not for thee, no new blood allowed, wealth simps, cant question democrats, hug more cheneys,  my god you people
+
 
 ### 
 
 ### Transphobes
 
 [***(See also: Asuka's Anti-Transphobia Field)***](https://bsky.app/profile/asukafield.xyz)
+
+[Tone Police](https://bsky.app/profile/ladyaranea.bsky.social/lists/3lpf4jw6bbp2y) by @ladyaranea.bsky.social
+
+> Cis "Allies" who believe they have the right to epistemic authority over the way the queer and trans communities are discussed.
+
+[A Very British Bigotry](https://bsky.app/profile/hedgehogsafety.bsky.social/lists/3l2lyvtks442a) by @hedgehogsafety.bsky.social
+
+> A list for anti trans rights users from around the world. Don't be anti trans rights, silly!
 
 [Followers of Jesse Singal](https://bsky.app/profile/suboptimal.technology/lists/3ld4s7b56zh2u) by @suboptimal.technology
 
@@ -165,23 +168,27 @@
 
 ### Misc Other Trash
 
+["Good Germans"](https://bsky.app/profile/ladyaranea.bsky.social/lists/3lqbp5j3mfc23) by @ladyaranea.bsky.social
+
+["Men's Rights Activists"](https://bsky.app/profile/ladyaranea.bsky.social/lists/3lq6dupycen2o) by @ladyaranea.bsky.social
+
+[NAFO](https://bsky.app/profile/westlandsretter.myatproto.social/lists/3kkr23i6wxm2v) by @westlandsretter.myatproto.social 
+
+> war hungry racist bootlickers and belligerent loudmouths
+
+[Fellas](https://bsky.app/profile/ladyaranea.bsky.social/lists/3lszkgf2b2x2e) by @ladyaranea.bsky.social
+
+> Members of a N30-N4z1 organization.
+
 [brains that make dial-up noises](https://cope.works/profile/ianthe.online/lists/3m2fzuqxn762i) by @ianthe.online
 
 > people who think the computer is alive and can feel Sadness (AI boosters)
-
-[Right wing propaganda and their followers](https://bsky.app/profile/skysentry.bsky.social/lists/3lblifk2bf32f) by @skysentry.bsky.social‬
-
-> MAGAts, Racists, Colonizers, Neo-nazis, Zionists, Antisemites, Ableists, Genocidaires & every other kind of fascist
-> 
-> Mute them, block them, starve them of oxygen.
 
 [Over10K](https://bsky.app/profile/automated-lists.bsky.social/lists/3ldh76so4fk2a) by ‪@automated-lists.bsky.social‬
 
 > Accounts that follow more than 10k accounts.
 > 
 > There is no implication that these accounts themselves are not run by humans, simply that they follow a large number of accounts.
-
-[Anti-Indigenous users](https://bsky.app/profile/sapphicfilmnerd.bsky.social/lists/3lcssnutodp2s) by ‪@sapphicfilmnerd.bsky.social‬
 
 [Rape Culture Apologists](https://bsky.app/profile/lindseyboylan.bsky.social/lists/3ldlu34yrsz2b) by ‪@lindseyboylan.bsky.social‬
 
@@ -194,5 +201,3 @@
 [Bad Faith Actors](https://bsky.app/profile/czedwards.bsky.social/lists/3lfqsk2yeqc26) by ‪@czedwards.bsky.social‬
 
 > Getting on this list means you’ve demonstrably done a whataboutism, a misattribution of blame, engaged in disinformation, or behaved in one of several ways consistent with campaigns of disruption.
-
-[Bigoted Shitheads, Genocide and/or Rape Apologists](https://bsky.app/profile/adrienneleigh.bsky.social/lists/3lbxfz2pdn32u) by ‪@adrienneleigh.bsky.social‬
