@@ -22,12 +22,6 @@
 
 > Democrats expressing the idea that Palestinians and anyone who criticized Biden/Harris for genocide “got Trump elected,” or cruelly mocking Palestinian-Americans over Trump’s policies.
 
-[Zionist war apologists](https://bsky.app/profile/shuchancellor.online/lists/3kcsnfzv3vi2a) by ‪@shuchancellor.online‬
-
-[Supports Genocide of Palestinians](https://bsky.app/profile/fatseanlives.bsky.social/lists/3l3435zrosu2g) by ‪@fatseanlives.bsky.social‬
-
-> bigoted and racist usually, cheering on murder. not even protest of Israeli committed genocide is allowed. evil
-
 [Genocide apologists](https://bsky.app/profile/gray-ranger.bsky.social/lists/3lguae5svls27) by ‪@gray-ranger.bsky.social‬
 
 > Liberals and zionists who defend the Biden regime genocide in Gaza, mock people for not supporting the genocidal Biden regime or who like or repost posts that defend the Biden regime genocide in Gaza. Zionists and people who are against Palestinian's right to exist.
