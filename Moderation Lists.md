@@ -26,10 +26,6 @@
 
 > Liberals and zionists who defend the Biden regime genocide in Gaza, mock people for not supporting the genocidal Biden regime or who like or repost posts that defend the Biden regime genocide in Gaza. Zionists and people who are against Palestinian's right to exist.
 
-[Supports genocide](https://bsky.app/profile/bluntzkrieg420.bsky.social/lists/3lhgo6dxk6r2z) by ‪@bluntzkrieg420.bsky.social‬
-
-> Some combination of bootlicker, bigot, idiot. Has posted in defense or support of genocide. Not to be trusted
-
 [Hasbarats](https://bsky.app/profile/rohanthenahor.bsky.social/lists/3lfdp22w2cc2l) by ‪@rohanthenahor.bsky.social‬
 
 > The World’s Most Moral Blocklist; will intercept 95% of incoming IDF apologetics. Genocide deniers, Israeli bots/psyops/compromised-influencers, and socks of Bibi's head of propaganda.
