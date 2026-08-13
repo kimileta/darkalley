@@ -68,6 +68,22 @@
 
 [***(See also: Setting up Skywatch Blue)***](https://github.com/kimileta/darkalley/blob/main/Labelers.md#setting-up-skywatch-blue) 
 
+[i'm afraid mamdani lives under my bed :(](https://cope.works/profile/ianthe.online/lists/3msaunuofnf2x) by @ianthe.online
+
+> people scared of zohran mamdani doing extremely basic governmental things
+
+[graph perverts](https://cope.works/profile/ianthe.online/lists/3mr4bovhomk2q) by @ianthe.online
+
+> um ackshully my chart says you're lying about your lived experience
+
+[kamala is my mom and you made her cry](https://cope.works/profile/ianthe.online/lists/3mqhuh77piv2x) by @ianthe.online
+
+> lesser-evilists who don't believe in representative democracy
+
+[The United Nations 🚩](https://cope.works/profile/ianthe.online/lists/3mqhsguct6y2t) by @ianthe.online
+
+> you got too many gotdamn flag emojis and you post bad
+
 [Blue Annoyances](https://bsky.app/profile/swordsjew.bsky.social/lists/3lderyrlnab2c) by ‪@swordsjew.bsky.social‬
 
 > Facebook meme type accounts, participating in followback schemes. Resistance-flavored pablum. Either incipient bad actors, or super annoying, or both.
