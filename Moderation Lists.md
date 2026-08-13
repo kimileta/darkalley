@@ -18,22 +18,6 @@
 
 ### Zionists/Hasbara/Genocidal Freaks
 
-[Block List for Palestinian Accounts](https://bsky.app/profile/arielgordon.bsky.social/lists/3lawc2mol5k2x) by ‪@arielgordon.bsky.social‬
-
-> This list is meant to hopefully help Palestinian accounts avoid some negative interactions here. Users who have been cruel/harassing/inappropriate with Palestinian accounts, scammers, and users pulled from right-wing block lists.
-
-[zionists and genocidal racists](https://bsky.app/profile/quiet-rain.bsky.social/lists/3lftoicq7tc2c) by @quiet-rain.bsky.social‬
-
-[Zionist scum](https://bsky.app/profile/kirachats.bsky.social/lists/3kda7txig7q23) by ‪@kirachats.bsky.social‬
-
-> People caught in 4k doing various forms of zionist settler colonial apologia including:
-> 
-> - breathing oxygen into zionist lies
-> - "Israel has the right to defend itself"
-> - undermining the Palestinian experience
-> - vote shaming on behalf of Biden
-> - sea-lioning to exhaust pro-Palestine activists
-
 [Dems against Palestinians and Arabs](https://bsky.app/profile/justkelly.bsky.social/lists/3lg7ew3aybz2y) by ‪@justkelly.bsky.social‬
 
 > Democrats expressing the idea that Palestinians and anyone who criticized Biden/Harris for genocide “got Trump elected,” or cruelly mocking Palestinian-Americans over Trump’s policies.
