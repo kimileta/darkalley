@@ -68,6 +68,10 @@
 
 [***(See also: Setting up Skywatch Blue)***](https://github.com/kimileta/darkalley/blob/main/Labelers.md#setting-up-skywatch-blue) 
 
+[💖sacrifice yourself for gavin💖](https://cope.works/profile/ianthe.online/lists/3lwvfvco56l2p) by @ianthe.online
+
+> people who show up on anti-newsom posts to start fights and yell about how "people should be treated like human beings" is an outrageous "purity test"
+
 [i'm afraid mamdani lives under my bed :(](https://cope.works/profile/ianthe.online/lists/3msaunuofnf2x) by @ianthe.online
 
 > people scared of zohran mamdani doing extremely basic governmental things
@@ -84,6 +88,10 @@
 
 > you got too many gotdamn flag emojis and you post bad
 
+[crunchy-looking leaves 🍁](https://cope.works/profile/ianthe.online/lists/3mocpr2kfqk2b) by @ianthe.online
+
+> insufferable canada flag emoji people
+
 [Blue Annoyances](https://bsky.app/profile/swordsjew.bsky.social/lists/3lderyrlnab2c) by ‪@swordsjew.bsky.social‬
 
 > Facebook meme type accounts, participating in followback schemes. Resistance-flavored pablum. Either incipient bad actors, or super annoying, or both.
@@ -95,6 +103,10 @@
 [Libs who think Trump's a communist](https://bsky.app/profile/ianthe.online/lists/3lk4hdsuk7v2x) by ‪@ianthe.online‬
 
 > lol. lmao, even.
+
+[libs who will sell you to Satan for one corn chip](https://cope.works/profile/ianthe.online/lists/3lz523iz52x2o) by @ianthe.online
+
+> people against protest opsec to a suspicious degree
 
 [Enlightened centrists/resist libs](https://bsky.app/profile/alexg3.bsky.social/lists/3laurmyxerd2d) by ‪@alexg3.bsky.social‬
 
@@ -179,6 +191,10 @@
 
 ### Misc Other Trash
 
+[brains that make dial-up noises](https://cope.works/profile/ianthe.online/lists/3m2fzuqxn762i) by @ianthe.online
+
+> people who think the computer is alive and can feel Sadness (AI boosters)
+
 [Right wing propaganda and their followers](https://bsky.app/profile/skysentry.bsky.social/lists/3lblifk2bf32f) by @skysentry.bsky.social‬
 
 > MAGAts, Racists, Colonizers, Neo-nazis, Zionists, Antisemites, Ableists, Genocidaires & every other kind of fascist
@@ -204,7 +220,5 @@
 [Bad Faith Actors](https://bsky.app/profile/czedwards.bsky.social/lists/3lfqsk2yeqc26) by ‪@czedwards.bsky.social‬
 
 > Getting on this list means you’ve demonstrably done a whataboutism, a misattribution of blame, engaged in disinformation, or behaved in one of several ways consistent with campaigns of disruption.
-
-[trolls](https://bsky.app/profile/sentient6.bsky.social/lists/3lcw2siifbh2t) by ‪@sentient6.bsky.social‬
 
 [Bigoted Shitheads, Genocide and/or Rape Apologists](https://bsky.app/profile/adrienneleigh.bsky.social/lists/3lbxfz2pdn32u) by ‪@adrienneleigh.bsky.social‬
