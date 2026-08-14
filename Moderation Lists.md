@@ -51,7 +51,7 @@
 > and a fascist bleeds. 
 > liberals who parrot fascist talking points
 
-[💖sacrifice yourself for gavin💖](https://cope.works/profile/ianthe.online/lists/3lwvfvco56l2p) by @ianthe.online
+[💖sacrifice yourself for gavin💖](https://bsky.app/profile/ianthe.online/lists/3lwvfvco56l2p) by @ianthe.online
 
 > people who show up on anti-newsom posts to start fights and yell about how "people should be treated like human beings" is an outrageous "purity test"
 
@@ -59,23 +59,23 @@
 
 > Friends don't let friends see astroturfing. This moderation list is for Newsom stans, especially those being transphobic or posting AI slop of him ‐ and nobody else.
 
-[i'm afraid mamdani lives under my bed :(](https://cope.works/profile/ianthe.online/lists/3msaunuofnf2x) by @ianthe.online
+[i'm afraid mamdani lives under my bed :(](https://bsky.app/profile/ianthe.online/lists/3msaunuofnf2x) by @ianthe.online
 
 > people scared of zohran mamdani doing extremely basic governmental things
 
-[graph perverts](https://cope.works/profile/ianthe.online/lists/3mr4bovhomk2q) by @ianthe.online
+[graph perverts](https://bsky.app/profile/ianthe.online/lists/3mr4bovhomk2q) by @ianthe.online
 
 > um ackshully my chart says you're lying about your lived experience
 
-[kamala is my mom and you made her cry](https://cope.works/profile/ianthe.online/lists/3mqhuh77piv2x) by @ianthe.online
+[kamala is my mom and you made her cry](https://bsky.app/profile/ianthe.online/lists/3mqhuh77piv2x) by @ianthe.online
 
 > lesser-evilists who don't believe in representative democracy
 
-[The United Nations 🚩](https://cope.works/profile/ianthe.online/lists/3mqhsguct6y2t) by @ianthe.online
+[The United Nations 🚩](https://bsky.app/profile/ianthe.online/lists/3mqhsguct6y2t) by @ianthe.online
 
 > you got too many gotdamn flag emojis and you post bad
 
-[crunchy-looking leaves 🍁](https://cope.works/profile/ianthe.online/lists/3mocpr2kfqk2b) by @ianthe.online
+[crunchy-looking leaves 🍁](https://bsky.app/profile/ianthe.online/lists/3mocpr2kfqk2b) by @ianthe.online
 
 > insufferable canada flag emoji people
 
